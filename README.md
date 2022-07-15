@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Evilsister
-- 👀 I’m interested in lesrning how to hack instagram im sick of waiting for support to help, maybe i can figure it out myself.
+- 👀 I’m interested in learning how to hack instagram im sick of waiting for support to help, maybe i can figure it out myself.
 - i live in Vamcouver canada huge Bruins & Raiderd fan.
 - Love hoing to loud, noisy, sweaty metal shows. Obsessed with all things Myles Kennedy. Loved Lemmy & Motorhead. Lemmy was the real deal, last great rockstar. God indeed is Lemmy.
 - cancer warrior. FUCK CANCER
